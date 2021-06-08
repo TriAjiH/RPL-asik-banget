@@ -1,2 +1,2 @@
 # RPL ASIK BANGET
-ini buat tugas
+semangat ya....
